@@ -1,1 +1,1 @@
-![Atalere](splash.png)
+
